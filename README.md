@@ -1,4 +1,12 @@
-## Hi there 👋
+##Hall of fame
+
+  This is my friend Simo say hi to her I love making ponies for her. :)
+
+<img width="217" height="173" alt="Silvaze" src="https://github.com/user-attachments/assets/ecfacc63-07de-4f2f-a3f4-45210841442d" />
+
+  My little sis Dana <3 She make cute ponies (including this super cute Lanolin)
+
+<img width="179" height="129" alt="image" src="https://github.com/user-attachments/assets/ebf6c352-c4b8-499a-b634-76a7b8df315a" />
 
 <!--
 **LanolinKisser/LanolinKisser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
