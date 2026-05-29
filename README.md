@@ -8,7 +8,7 @@
 
 <img width="179" height="129" alt="image" src="https://github.com/user-attachments/assets/31957a05-45fd-4ade-b6bc-9522e7d37e40" />
 
-<img width="1649" height="1500" alt="LanoDuo kees" src="https://github.com/user-attachments/assets/7d47d8ba-22bd-4ace-b120-19419aa06c03" />
+
 
 <!--
 **LanolinKisser/LanolinKisser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
