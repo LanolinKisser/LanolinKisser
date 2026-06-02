@@ -3,7 +3,9 @@
   This is my friend Simo say hi to her I love making ponies for her. :)
 
 <img width="217" height="173" alt="Silvaze" src="https://github.com/user-attachments/assets/61dddaf6-6d6f-42a2-b4a2-54052c14771e" />
-<img width="332" height="229" alt="image" src="https://github.com/user-attachments/assets/086ab074-bbd8-44a6-8694-4870887c9533" />
+
+<img width="217" height="173" alt="image" src="https://github.com/user-attachments/assets/0651947d-d162-45b6-92d8-661f24b7e822" />
+
 
 
   My little sis Dana <3 She make cute ponies (including this super cute Lanolin)
