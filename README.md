@@ -4,6 +4,8 @@ Silvaze, Metamy, Tailsmo, Taiream, Mimilin, Sonamy & more, just ask. ^^
 
 Multishipper
 
+I treat everyone the same. Don't like it? Block!
+
 ## Hall of fame
 
   This is my friend Simo say hi to her I love making ponies for her. :)
