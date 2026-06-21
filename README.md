@@ -1,6 +1,6 @@
 I like Yurigem and Hetgem the most! 
 
-Silvaze, Metamy, Tailsmo, Taiream, Mimilin, Sonamy & more, just ask. ^^
+Silvaze, Metamy, Tailsmo, Mimilin, Sonamy, Dripcream, Vectilla, Taiream, Sonaze, Silvisper, Whispangle, Tanjewel & more, just ask. ^^
 
 Multishipper
 
