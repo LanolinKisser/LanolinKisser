@@ -18,7 +18,8 @@ I treat everyone the same. Don't like it? Block!
 
   My little sis Dana <3 She make cute ponies (including this super cute Lanolin)
 
-<img width="179" height="129" alt="image" src="https://github.com/user-attachments/assets/31957a05-45fd-4ade-b6bc-9522e7d37e40" />
+<img width="210" height="146" alt="image" src="https://github.com/user-attachments/assets/4d5905f6-b238-4efd-aace-7bdb819c33b6" />
+
 
 
 
