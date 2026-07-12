@@ -4,7 +4,7 @@ Silvaze, Metamy, Tailsmo, Mimilin, Dripcream & more, just ask. ^^
 
 Multishipper
 
-I treat everyone the same. Don't like it? Block!
+I treat everyone the same, because everyone is equal to me. This means - same words for everyone. Don't like it? Block or mute. 
 
 ## Hall of fame
 
