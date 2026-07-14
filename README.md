@@ -22,6 +22,7 @@ I treat everyone the same, because everyone is equal to me. This means - same wo
 
 <img width="1137" height="718" alt="image" src="https://github.com/user-attachments/assets/3fc4fea2-8b36-4b9b-b854-6499fc54020b" />
 
+<img width="567" height="362" alt="image" src="https://github.com/user-attachments/assets/8eef72d9-8d2e-4e6e-b52b-d66e11e66453" />
 
 
 
