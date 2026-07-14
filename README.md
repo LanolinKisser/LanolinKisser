@@ -20,6 +20,9 @@ I treat everyone the same, because everyone is equal to me. This means - same wo
 
 <img width="210" height="146" alt="image" src="https://github.com/user-attachments/assets/4d5905f6-b238-4efd-aace-7bdb819c33b6" />
 
+<img width="1137" height="718" alt="image" src="https://github.com/user-attachments/assets/3fc4fea2-8b36-4b9b-b854-6499fc54020b" />
+
+
 
 
 
