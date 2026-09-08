@@ -1,10 +1,11 @@
 I like Yurigem and Hetgem the most! 
 
-Silvaze, Metamy, Tailsmo, Mimilin, Dripcream & more, just ask. ^^
+Silvaze, Metamy, Dripcream & more, just ask. ^^
 
 Multishipper
 
-I treat everyone the same, because everyone is equal to me. This means - same words for everyone. Don't like it? Block or mute. 
+I treat everyone the same, because everyone is equal to me. This means - same words for everyone. If you don't like it or it makes you uncomfortable, mute me or block me.
+I am not comfortable with self harm.
 
 ## Hall of fame
 
@@ -16,7 +17,7 @@ I treat everyone the same, because everyone is equal to me. This means - same wo
 
 
 
-  My little sis Dana <3 She make cute ponies (including this super cute Lanolin)
+  My little sis Dana <3 She make cute ponies (including this super cute Lanolin) I miss her a lot :(
 
 <img width="210" height="146" alt="image" src="https://github.com/user-attachments/assets/4d5905f6-b238-4efd-aace-7bdb819c33b6" />
 
