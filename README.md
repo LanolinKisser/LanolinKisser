@@ -15,7 +15,7 @@ I am not comfortable with self harm.
 
 <img width="217" height="173" alt="image" src="https://github.com/user-attachments/assets/0651947d-d162-45b6-92d8-661f24b7e822" />
 
-<img width="210" height="146" alt="image" src="https://github.com/user-attachments/assets/4b67eb4b-3ffd-4591-96b3-3734684b24d8" />
+<img width="217" height="173" alt="image" src="https://github.com/user-attachments/assets/4b67eb4b-3ffd-4591-96b3-3734684b24d8" />
 
 
   My little sis Dana <3 She make cute ponies (including this super cute Lanolin) I miss her a lot :(
