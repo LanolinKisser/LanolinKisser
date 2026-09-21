@@ -5,7 +5,7 @@ Silvaze, Metamy, Dripcream, Silvisper, Tanjewel & more, just ask. ^^
 Multishipper
 
 I treat everyone the same, because everyone is equal to me. This means - same words for everyone. If you don't like it or it makes you uncomfortable, mute me or block me.
-I am not comfortable with self harm.
+I am not comfortable with self harm and body modification.
 
 ## Hall of fame
 
