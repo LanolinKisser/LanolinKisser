@@ -5,7 +5,9 @@ Silvaze, Metamy, Dripcream, Silvisper, Tanjewel & more, just ask. ^^
 Multishipper, crackshipper
 
 Cuddle lover and always open. 
-I treat everyone the same, because everyone is equal to me. This means - same words for everyone. If you don't like it or it makes you uncomfortable, mute me or block me. 
+I treat everyone the same, because everyone is equal to me. This means - same words for everyone. If you don't like it or it makes you uncomfortable, mute me or block me. (I will likewise block/mute if I'm uncomfortable)
+
+
 I am not comfortable with self harm and body modification. I try to avoid inappropriate topics.
 
 ## Hall of fame
