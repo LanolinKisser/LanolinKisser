@@ -5,8 +5,8 @@ Silvaze, Metamy, Dripcream, Silvisper, Tanjewel & more, just ask. ^^
 Multishipper, crackshipper
 
 
-> *You *can* copy my ponies if you'd like, just don't claim them as yours... I'm happy to make things to be enjoyed by all! :)*
-(If you want help or a tutorial on how to do something whisper me!)
+> *You may copy my ponies if you'd like, just don't claim them as yours, and don't put "Do not copy" on them. I'm happy to make things to be enjoyed by all! :)*
+> (If you want help or a tutorial on how to do something whisper me!)
 
 
 Cuddle lover and always open. 
