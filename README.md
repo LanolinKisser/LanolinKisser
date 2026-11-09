@@ -26,7 +26,7 @@ I am not comfortable with self harm and body modification. I try to avoid inappr
 <img width="217" height="173" alt="image" src="https://github.com/user-attachments/assets/4b67eb4b-3ffd-4591-96b3-3734684b24d8" />
 
 
-  My little sis Dana <3 She make cute ponies (including this super cute Lanolin) I miss her a lot :(
+  My little sis Dana <3 She make cute ponies (including this super cute Lanolin)! 
 
 <img width="210" height="146" alt="image" src="https://github.com/user-attachments/assets/4d5905f6-b238-4efd-aace-7bdb819c33b6" />
 
